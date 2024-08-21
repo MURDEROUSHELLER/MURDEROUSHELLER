@@ -1,12 +1,14 @@
 MURDEROUSHELLER/README.md
 
-![image](https://github.com/MURDEROUSHELLER/MURDEROUSHELLER/assets/174282535/adfa1bba-e998-41de-aea5-b1a98f8cdf06)
+![image](https://64.media.tumblr.com/6802ec65114744a43c1ee9a39659afa1/d62fd0e87d253daa-af/s500x750/d23aadcccea9838a4c39ab4cd1a7027fc9b41ebd.pnj
+)
                         
-`MORDECAI HELLER` *!*
-ᵔᵔ　　♟　　AROACE ---- ***IMPLAGENDER***  ✦
+`ROCKY RICKABY` *!*
+ᵔᵔ　　🎻　　AROACE ---- ***IMPLAGENDER***  ✦ ADHD
  
-  ![image](https://github.com/MURDEROUSHELLER/MURDEROUSHELLER/assets/174282535/e2da1ba5-d99d-4ba1-9278-567a63850e61)
+![image](https://i.pinimg.com/originals/37/e0/c9/37e0c97918ac7299f4304e6551624fd0.jpg)
 
-***C***ARRD : https://runulity.carrd.co/# :: PONY*TOWN* ' TAG / `ENG` 
+***C***ARRD : https://runulity.carrd.co/# :: PONY*TOWN* ' TAG / `ENG` | RENTRY : https://rentry.co/shiningliquor 
 
-![image](https://github.com/MURDEROUSHELLER/MURDEROUSHELLER/assets/174282535/bbaed763-b4e5-4fb6-ad53-261a53949fca)
+![image](https://64.media.tumblr.com/6802ec65114744a43c1ee9a39659afa1/d62fd0e87d253daa-af/s500x750/d23aadcccea9838a4c39ab4cd1a7027fc9b41ebd.pnj
+)
